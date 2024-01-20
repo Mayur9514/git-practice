@@ -10,3 +10,8 @@ atomic bomb
 system 76
 career is extremely important
 
+Studied in Two universities from Assam
+- Dibrugarh Univeristy
+- Cotton College State University
+
+
